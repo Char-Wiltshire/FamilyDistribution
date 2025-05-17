@@ -32,6 +32,7 @@ All outcomes are equally likely within a given range.
 Links:
 
 Slides: https://www.canva.com/design/DAGniquwE88/0eThUwj7nQjMQ_FmTNN_Yw/edit?utm_content=DAGniquwE88&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
 Video: https://drive.google.com/file/d/1JUqYJ_HjVy2j-2Dm427J6_Sp-rv7f8F7/view?usp=sharing
 
 
